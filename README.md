@@ -1,6 +1,4 @@
 # Önizleme
 
-
-
-https://user-images.githubusercontent.com/112270290/190922526-3969cbf4-4358-467a-b5f9-694866018b6f.mp4
+https://user-images.githubusercontent.com/33625775/190923204-26d0fc34-1f19-4704-9fca-94d53162be59.mp4
 
